@@ -10,6 +10,7 @@
 - 👭 You can connect with me on : 
      
      LinkedIn: https://www.linkedin.com/in/anulika-stella-ufoh
+     Email: ufohanulika@gmail.com
 
 
 
